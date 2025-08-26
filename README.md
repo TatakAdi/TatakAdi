@@ -19,7 +19,7 @@ Perkenalkan saya **Tatak Adi Subagyo**.<br>
 
 Saya seorang mahasiswa Informatika Semester 7 di [Institut Teknologi Kalimantan](https://itk.ac.id/)
 
-Jika kamu tertarik, ayo kita berkoneksi/berkomunikasi, *You can check my* [LinkedIn](www.linkedin.com/in/tatak-adi-subagyo-4a7b6a27a)
+Jika kamu tertarik, ayo kita berkoneksi/berkomunikasi, *You can check my* [LinkedIn](https://www.linkedin.com/in/tatak-adi-subagyo-4a7b6a27a)
 
 <p align="left">
 <a href="https://github.com/TatakAdi">
